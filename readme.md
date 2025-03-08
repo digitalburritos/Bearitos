@@ -1,0 +1,1 @@
+Welcome the Bearitos to your Discord Server!
